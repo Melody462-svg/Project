@@ -1,0 +1,1 @@
+I developed a risk assessment and supporting policy set for a fictional organization, Stellar Clothing, to demonstrate the practical application of governance, risk, and compliance concepts in a real-world business context.
